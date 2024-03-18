@@ -1,1 +1,3 @@
-# smruti-swain.github.io
+### About me
+
+### Articles
